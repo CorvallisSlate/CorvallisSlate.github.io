@@ -12,14 +12,14 @@ layout: home
 We are an alliance of young organizers working to build a resilient, livable future. We come from backgrounds in climate, housing, labor, and tenant organizing, and we are ready to take our passion and commitment to the Corvallis City Council, where we will fight for the issues that are important to you. 
 
 
-1. **Climate Crisis & Community Resilience** - Meaningful and immediate action to address the climate crisis and build community resilience. As young people, we know that the time for climate action is now. 
+1. **Climate Crisis & Community Resilience** - We are committed to meaningful and immediate action to address the climate emergency and build sustainable communities. As young leaders, we understand the urgency of climate action and the importance of preparing our city for current and future challenges. 
 
-2. **Safe & Affordable Housing** - fight for affordability, livability, and tenants rights. 
+2. **Safe & Affordable Housing** - Fight for affordability, livability, and tenants rights. 
 
 3. **Housing Justice** - Humane and supportive treatment of our unhoused neighbors. 
 
 4. **Transparency & public input** - Accountable leadership and clear communication. 
   
-5. **Safe Streets** - prioritize pedestrians, bikes, and public transportation in all our decisions! 
+5. **Safe Streets** - Prioritize pedestrians, bikes, and public transportation in all our decisions! 
 
 
